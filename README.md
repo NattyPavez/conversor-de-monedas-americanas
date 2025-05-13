@@ -81,7 +81,7 @@ Este proyecto fue una instancia de **autodesafío y aprendizaje**, donde prioric
 
 ## 🎥 Demostración
 
-[🎬  https://www.linkedin.com/feed/update/urn:li:ugcPost:7328121549981380608/]
+[🎬 https://www.linkedin.com/feed/update/urn:li:ugcPost:7328145163199934464/]
 
 ---
 
